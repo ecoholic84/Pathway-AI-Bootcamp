@@ -4,7 +4,7 @@ Welcome to the μLearn x Pathway Initiative, an exciting adventure into the worl
 
 ## 🚀 Start your journey now by applying: [Apply Here](https://mulearn.org/pathway) 🌠
 
-## 🎟 Pilot batch ongoing 🚁✨
+## 🎟 Second batch ongoing 🚁✨
 
 ## 🤞🏻 Join the Waitlist and get access really soon! 📜🎈
 
